@@ -1,0 +1,1 @@
+# yapay_zeka_vizeproje_kedi_kopek
